@@ -1,1 +1,0 @@
-# srinivasareddy0.github.io
